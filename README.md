@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Java.
 - 💞️ I’m looking to collaborate on games or apps.
 - 📫 How to reach me via email kikavese@gmail.com
-- 😄 Pronouns: prefer he/him but I dont care.
+- 😄 Pronouns: I dont care, use whatever you want he / she / they /...
 - ⚡ Fun fact: Human collarbone is design to break so important stuff (like ur neck) stay safe. 
 
 <!---
